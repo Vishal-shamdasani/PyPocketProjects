@@ -54,7 +54,7 @@ Contributions are welcome! Feel free to:
 For questions, suggestions, or collaborations, reach out to:
 - **Vishal Shamdasani**  
   - Email: [shamdasani46@gmail.com](mailto:shamdasani46@gmail.com)  
-  - LinkedIn: [Vishal Shamdasani](https://www.linkedin.com/in/vishal-shamdasani-4aa846266)
+  - LinkedIn: [Vishal Shamdasani](www.linkedin.com/in/vishal810)
 
 ---
 
